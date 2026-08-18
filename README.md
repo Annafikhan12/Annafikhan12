@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...ICT
 - 💞️ I’m looking to collaborate on ...Graphic designing
 - 📫 How to reach me ...
-- 😄 Pronouns: ...Annafi
+- 😄 Valid name: Rimo Hasan
 - ⚡ Fun fact: ...I am foodie..
 
 <!---
